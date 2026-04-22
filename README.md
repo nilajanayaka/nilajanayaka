@@ -42,7 +42,7 @@
 ## 📫 Connect with Me
 
 * 🌐 Portfolio (coming soon)
-* 💼 LinkedIn (add your link here)
+* 💼 LinkedIn : www.linkedin.com/in/nilaja-nayaka
 
 ---
 
